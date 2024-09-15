@@ -1,4 +1,4 @@
-## [1111 mural <br> uranus](https://webmural.com/1111)
+## [Uranus planet 1111 remix](https://p9e.page/uranus)
 
 * [nosh color](https://s9a.page/nosh)
 * [1111ms transition](page.css)
